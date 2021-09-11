@@ -2,3 +2,4 @@
 2) Taking good notes is very important
 3) Writing down questions that arise during the sessions
 4) Coding/Doing pre-work daily
+5) My Mom has always been my biggest supporter and continues to be
