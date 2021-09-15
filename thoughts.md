@@ -6,4 +6,3 @@
 
 Here is a new thought
 Here is another new thought
-One more...
